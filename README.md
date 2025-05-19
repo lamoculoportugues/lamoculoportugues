@@ -20,7 +20,7 @@ Feel free to interact I love any sort of company! if i don’t respond then im A
 </p>
 
 <p align="center">
-FIND ME: CH area, safe global server: to the right of the pond that's by the bakery
+FIND ME: CH area, safe global server: to the right of the pond that's by the bakery! I might sometimes be roaming around in spanish server too, lol
 </p>
 
 <p align="center">
