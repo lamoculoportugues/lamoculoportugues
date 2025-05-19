@@ -12,15 +12,15 @@
 </p>
 
 <p align="center">
-holala, my name's Santi
+hi, my name is Santi
 </p>
 
 <p align="center">
-Feel free to interact I love any sort of company! if i don’t respond then im AFK, bug me in whisper if needed
+feel free to approach me yi love any sort of company👍if i dont respond then im busy, annoy me in whisper if need
 </p>
 
 <p align="center">
-FIND ME: CH area, safe global server: to the right of the pond that's by the bakery! I might sometimes be roaming around in spanish server too, lol
+FIND ME: CH area, safe global server: to right of the pond thats by the bakery👍i might sometime be roaming around in spanish server too xv
 </p>
 
 <p align="center">
