@@ -16,7 +16,7 @@ hi, my name is Santi
 </p>
 
 <p align="center">
-feel free to approach me i love any sort of company👍if i dont respond then im busy, spam me in whisper if need
+dont be shy to approach me i love any sort of company👍if i dont respond then im busy, spam me in whisper if need
 </p>
 
 <p align="center">
