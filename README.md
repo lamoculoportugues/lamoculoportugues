@@ -16,11 +16,11 @@ hi, my name is Santi
 </p>
 
 <p align="center">
-feel free to approach me yi love any sort of company👍if i dont respond then im busy, spam me in whisper if need
+feel free to approach me i love any sort of company👍if i dont respond then im busy, spam me in whisper if need
 </p>
 
 <p align="center">
-FIND ME: CH area, safe global server: to right of the pond thats by bakery👍i might sometimes be roaming around in spanish server too xv
+FIND ME: CH area, global server: to the right of the pond by bakery👍i might sometimes be roaming around in spanish server too
 </p>
 
 <p align="center">
