@@ -4,7 +4,7 @@ Read carrd for more info + better layout 😂😂😂
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/429601e2-0dad-4b73-bb57-fe379a15d63f" />
 </p>
 
-Call me Santi . he/him . 7/22, 16+
+Call me Santi , he/him , age 16+
 
 I spend my majority sitting in ch area or near spawn
 
