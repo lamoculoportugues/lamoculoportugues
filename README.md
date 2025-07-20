@@ -8,6 +8,6 @@ Call me Santi . he/him . 7/22, 16+
 
 I spend my majority sitting in ch area or near spawn
 
-Anyone can interact with me, I always love company. If I dont respond or suddenly leave that means I'm afk
+Please interact! I am very friendly. If I dont respond or suddenly leave that means I'm afk
 
-Please be respectful, I do not care if we are close friends. I am tired most of the time and don’t have the energy to deal with bullshit, if I am uncomfortable I will simply just block/not respond.
+Please be respectful, I do not care if we are close friends. I'm not the most energetic and don’t feel like dealing with the disrespect, but I will still not allow myself to be belittled. If I am uncomfortable I will simply just leave/block/not respond so don't be surprised if I come off as rude
