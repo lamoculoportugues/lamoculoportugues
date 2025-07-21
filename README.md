@@ -10,4 +10,4 @@ I spend my majority sitting in ch area or near spawn
 
 Please interact! I am very friendly. If I dont respond or suddenly leave that means I'm afk
 
-Please be respectful, I do not care if we are close friends. I'm not the most energetic and don’t feel like dealing with the disrespect, but I will still not allow myself to be belittled. If I am uncomfortable I will simply just leave/block/not respond so don't be surprised if I come off as rude
+Please be respectful and not make crude jokes/comments about me, I do not care if we are close friends. If I am uncomfortable I will simply just leave/block/not respond
