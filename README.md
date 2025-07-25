@@ -1,9 +1,5 @@
 Read carrd for more info + better layout
 
-<p align="center">
-  <img src"https://github.com/user-attachments/assets/d1f4e362-d82d-4b48-89b2-750f732cfff8">
-</p>
-
 Call me Santi : he/him : age 16+
 
 Feel free to interact 🙌 I am very friendly. If I dont respond that means I'm afk
