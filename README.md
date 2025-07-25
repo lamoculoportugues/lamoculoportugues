@@ -6,9 +6,7 @@ Read carrd for more info + better layout
 
 Call me Santi : he/him : age 16+
 
-I spend my majority sitting in ch area or near spawn
-
-Feel free to interact 🙌 I am very friendly. If I dont respond or suddenly leave that means I'm afk
+Feel free to interact 🙌 I am very friendly. If I dont respond that means I'm afk. Can speak spanish/tagalog/portuguese
 
 Please be respectful and not make crude jokes/comments about me, I do not care if we are close friends.
 
