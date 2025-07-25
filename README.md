@@ -4,9 +4,9 @@ Read carrd for more info + better layout
 <img src=https://github.com/user-attachments/assets/31b7923a-990f-4882-b6d4-36351bfb6205>
 </p>
 
-Call me Santi : he/him : age 16+
+Call me Santi... he/him, age 16-17, esp/tag/por
 
-Feel free to interact 🙌 I am very friendly. If I dont respond that means I'm afk
+Feel free to interact 🙌 I am very friendly! If I dont respond that means I'm afk 😓 just send a whisper
 
 Please be respectful and not make crude jokes/comments about me, I do not care if we are close friends.
 
