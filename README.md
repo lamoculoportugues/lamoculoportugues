@@ -1,8 +1,8 @@
 [carrd](https://santtiiago.carrd.co/)
 [twitter](https://x.com/e_e_xecutioner?s=21)
-[guestbook](https://santi.atabook.org/)
-[anonymous](https://velasco.straw.page)
-[rec](https://listography.com/velasco)
+[ata](https://santi.atabook.org/)
+[straw](https://velasco.straw.page)
+[list](https://listography.com/velasco)
 
 . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
