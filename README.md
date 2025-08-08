@@ -2,6 +2,7 @@
 [twitter](https://x.com/e_e_xecutioner?s=21)
 [guestbook](https://santi.atabook.org/)
 [anonymous](https://velasco.straw.page)
+[rec](https://listography.com/velasco)
 
 . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
